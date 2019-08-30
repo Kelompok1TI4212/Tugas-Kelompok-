@@ -4,7 +4,7 @@ Ade Mulyono (1201184101)
 
 Dita Kusuma (1201184036)
 
-Fahmi Rizal Samlistiya {1201174287)
+Fahmi Rizal Samlistiya (1201174287)
 
 Fauzia Latifa Ainaya (1201184195)
 
